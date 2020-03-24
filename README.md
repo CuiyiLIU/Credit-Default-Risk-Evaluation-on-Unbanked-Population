@@ -1,1 +1,1 @@
-![](Poster.jpg)
+![](Project Poster.jpg)
